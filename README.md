@@ -12,3 +12,7 @@ Welcome to **2021Lighting**, a mod that brings back the nostalgic vibes of *Gori
 
 
 Thanks for choosing 2021Lighting! Let’s bring back old *Gorilla Tag*  together!
+
+
+# Disclaimers
+This product is not affiliated with Gorilla Tag or Another Axiom LLC and is not endorsed or otherwise sponsored by Another Axiom LLC. Portions of the materials contained herein are property of Another Axiom LLC. ©2021 Another Axiom LLC.
